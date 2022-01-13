@@ -5,5 +5,5 @@
 - 💬 Ask me about Nothing
 - 📫 How to reach me: Nothing
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I'm not a furry
 
