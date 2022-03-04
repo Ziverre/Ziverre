@@ -5,6 +5,6 @@
 - 💬 Ask me about Nothing
 - 📫 How to reach me: Nothing
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I'm not a furry
+- ⚡ Fun fact: Nothing
 ## My Dynamic Duo :
 <img src="https://discord.c99.nl/widget/theme-3/903990460186493009.png">
